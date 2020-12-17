@@ -1,1 +1,1 @@
-This is the recipe to create a delicious sponge cake which will make your mouth water. It is eggless and extremely simple to make.
+This is the recipe to create a delicious and mouth watering sponge cake. It is eggless and extremely simple to make.
